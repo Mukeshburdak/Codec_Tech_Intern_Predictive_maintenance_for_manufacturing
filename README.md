@@ -1,0 +1,1 @@
+# Codec_Tech_Intern_Predictive_maintenance_for_manufacturing
